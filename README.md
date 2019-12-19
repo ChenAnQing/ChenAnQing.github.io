@@ -1,2 +1,2 @@
-# ChenAnQing.github.io
+# 我校优秀师生
 icampus
